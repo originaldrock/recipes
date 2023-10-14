@@ -23,11 +23,19 @@ Stir Fry Sauce
 Instructions
 Stir Fry Sauce
 1 - In a medium size bowl, whisk together corn starch and water. Add remaining ingredients (chicken broth, soy sauce, honey, and toasted sesame oil, red pepper flakes) and whisk to combine. Set aside. 
+
 1 - Add one tablespoon of olive oil to a large skillet or wok and heat over medium high heat. 
+
 1 - Add chicken (in batches if necessary) and season with salt and pepper. Cook for 3 to 5 minutes or until cooked through. Remove from skillet. 
+
 1 - Reduce heat to medium and add remaining tablespoon of oil to the skillet. 
+
 1 - Add broccoli, bell pepper, and carrots and cook, stirring occasionally, just until crisp tender. Add ginger and garlic and cook for an additional minute. 
+
 1 - Add chicken back into the skillet and stir to combine. 
+
 1 - Whisk stir fry sauce and pour over chicken and vegetables and stir gently to combine. 
+
 1 - Bring to a boil, stirring occasionally, and let boil for one minute. 
+
 1 - Serve with rice and/or chow mein if desired.
