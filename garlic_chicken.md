@@ -1,17 +1,29 @@
 Ingredients list for the Garlic Butter Chicken Bites and Asparagus
 
 3 boneless, skinless chicken breasts, cut into bite-sized chunks
+
 2 bunch of asparagus, rinsed and trimmed
+
 1/2 cup butter, softened
+
 1 teaspoon olive oil
+
 2 teaspoons minced garlic
+
 1 teaspoon Italian seasoning or Herbes de Provence
+
 1 tablespoon hot sauce, optional (we used Sriracha)
+
 1/2 cup (125ml) low-sodium chicken broth
+
 Juice of 1/2 lemon
+
 1 tablespoon minced parsley
+
 Crushed red chili pepper flakes, optional
+
 Slices of lemon, for garnish
+
 For the chicken seasoning:
 1 teaspoon salt
 1 teaspoon fresh cracked black pepper
